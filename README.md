@@ -1,6 +1,6 @@
 ## Hi! I am Jenn! (OPIM-5512_JRL23005)👋 
 
-*📍3rd Year PhD Student in Statistics @ University of Connecticut*   
+*📍M.S in Statistics Student @ University of Connecticut*   
 
 ---
 ### 🔬 About Me
